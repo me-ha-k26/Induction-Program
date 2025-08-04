@@ -68,5 +68,18 @@ It awards 100% tuition fee  scholarship.
 Applicable for 1 year students .
 Explained registration process.
 
+
+DAY 3- 2 AUGUST 2025
+   - Universal Human Values: A Path to Happiness
+     Our first lecture of the day was on Universal Human Values, a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. We also shared real-life scenarios, which made the discussion more relatable and impactful.
+
+DAY 4- 4 AUGUST 2025
+  - Our day began with a lecture on Universal Human Values (UHV). The session delved into the coexistence of the Self and Body, highlighting their distinct needs:
+
+The Self seeks happiness, driven by desires, thoughts, and expectations. These activities are continuous and revolve around knowing, assuming, recognizing, and fulfilling.
+The Body requires physical facilities such as food and other material needs, which are temporary and involve recognizing and fulfilling immediate needs.
+We learned that the Self, as a Consciousness Entity, and the Body, as a Material Entity, have different types of needs. Misunderstanding these differences can lead to feelings of deprivation and exploitation. Imagination, driven by sensation, pre-conditioning, or natural acceptance, plays a crucial role in the Self. Harmony in the Self is achieved when imagination aligns with natural acceptance, and this harmony is reflected in the Body’s well-being through self-regulation.
+
+
  		 
                              THANK YOU
