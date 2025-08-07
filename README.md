@@ -80,6 +80,15 @@ The Self seeks happiness, driven by desires, thoughts, and expectations. These a
 The Body requires physical facilities such as food and other material needs, which are temporary and involve recognizing and fulfilling immediate needs.
 We learned that the Self, as a Consciousness Entity, and the Body, as a Material Entity, have different types of needs. Misunderstanding these differences can lead to feelings of deprivation and exploitation. Imagination, driven by sensation, pre-conditioning, or natural acceptance, plays a crucial role in the Self. Harmony in the Self is achieved when imagination aligns with natural acceptance, and this harmony is reflected in the Body’s well-being through self-regulation.
 
+DAY5 - 6 AUGUST 2025
+				
+-LAKHVIR SINGH KHANA
+-He is the incharge of CML(Center for multi-faceted learning).
+He discussed about cml,its features, its vision .
+Even discussed about the events organised by them , their selection process etc.
+We even get to know about SWAYAM and its (nptel) courses,
+
+
 
  		 
                              THANK YOU
